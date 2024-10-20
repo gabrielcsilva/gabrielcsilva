@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gabriel Coelho (@gabrielcsilva), majored in Electronic Engineering at Universidade de Brasília.
+- 👋 Hi, I’m Gabriel Coelho (@gabrielcsilva), Bachelor in Electronic Engineering at Universidade de Brasília and a Master's student at Université-Paris Saclay.
 
 - 📫 You can reach me by [LinkedIn](https://www.linkedin.com/in/csilvagabriel/) or by e-mail (csilvagabriel@hotmail.com)
 
